@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm **_Felipe Gonçalves_**, the person who likes to be online with the technologies. I currently work as a system Systems Analyst on **_UNIMED VR_**. </br>
+I'm **_Felipe Gonçalves_**, the person who likes to be online with the technologies. I currently work as a Systems Analyst on **_UNIMED VR_**. </br>
 
 ### 🚀 Focus
 
